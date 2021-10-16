@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [16 октября 2021 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=pRKD7i34e1w)
 - ["Библейский бутерброд" и край одежды | Леонид Рутковский](https://www.youtube.com/watch?v=mnA4pE3zuoc)
 - [Вакцинация. Быть или не быть? | Олег Боков](https://www.youtube.com/watch?v=t9xVDPpuQUg)
 - [Что общего у адмирала ВМС и Иисуса? | Олег Боков](https://www.youtube.com/watch?v=TMxkRtzlb8c)
 - [Трансформируй свою жизнь с Богом | Леонид Рутковский](https://www.youtube.com/watch?v=UvQuizexJmY)
-- [В чем я предстаю перед Богом | Олег Боков](https://www.youtube.com/watch?v=psCtEU6xPXA)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
