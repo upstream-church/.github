@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [30 октября 2021 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=4VHyvZrKB7s)
 - [Я христианин, так что лучше со мной не связывайся | Олег Боков](https://www.youtube.com/watch?v=DtFGzBx9irU)
 - [Книга Исаии 43:1-7. Библия в видео формате | Живая Библия](https://www.youtube.com/watch?v=DX2knIvbd6o)
 - [3 шага к решению конфликта | Олег Боков](https://www.youtube.com/watch?v=q7j-H8k6Bhg)
 - [Доспехи Бога. Перезагрузка | Олег Боков](https://www.youtube.com/watch?v=yHfddAnijOU)
-- [Псалом 23. Библия в видео формате | Живая Библия](https://www.youtube.com/watch?v=tTuNOeytBrk)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
