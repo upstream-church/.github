@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [6 ноября 2021 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=D9ncRBRXWk4)
 - [Бог — брелок? | Олег Боков](https://www.youtube.com/watch?v=viMVZz0Xk2o)
 - [Притчи 3:1-12. Библия в видео формате | Живая Библия](https://www.youtube.com/watch?v=bmrWxSAXmFw)
 - [Какова твоя роль в победе Бога? | Олег Боков](https://www.youtube.com/watch?v=Uk_tqwPF6q4)
 - [Я христианин, так что лучше со мной не связывайся | Олег Боков](https://www.youtube.com/watch?v=DtFGzBx9irU)
-- [Книга Исаии 43:1-7. Библия в видео формате | Живая Библия](https://www.youtube.com/watch?v=DX2knIvbd6o)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
