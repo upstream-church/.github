@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [13 ноября 2021 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=hkJfnx026cc)
 - [Проповедь &quot;Время перемен&quot; - Олег Боков | Upstream Church](https://www.youtube.com/watch?v=jlSlvAPFAf4)
 - [Притчи 3:13-26. Библия в видео формате | Живая Библия](https://www.youtube.com/watch?v=i9s-TGTdrVM)
 - [За тебя борются две мамы | Олег Боков](https://www.youtube.com/watch?v=Q0j0IzY0PcY)
 - [Бог — брелок? | Олег Боков](https://www.youtube.com/watch?v=viMVZz0Xk2o)
+- [Притчи 3:1-12. Библия в видео формате | Живая Библия](https://www.youtube.com/watch?v=bmrWxSAXmFw)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
