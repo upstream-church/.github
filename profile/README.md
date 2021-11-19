@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [Проповедь &quot;1. 2. 3. 4 - ПОБЕДА!&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=jFw6R8Rc2bU)
 - [Проповедь &quot;Почему я опаздываю на служения?!&quot; - Олег Боков | Upstream Church](https://www.youtube.com/watch?v=BLqgc9So_2c)
 - [Проповедь &quot;Время перемен&quot; - Олег Боков | Upstream Church](https://www.youtube.com/watch?v=jlSlvAPFAf4)
 - [Притчи 3:13-26. Библия в видео формате | Живая Библия](https://www.youtube.com/watch?v=i9s-TGTdrVM)
 - [За тебя борются две мамы | Олег Боков](https://www.youtube.com/watch?v=Q0j0IzY0PcY)
-- [Бог — брелок? | Олег Боков](https://www.youtube.com/watch?v=viMVZz0Xk2o)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
