@@ -13,10 +13,10 @@
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
 - [Проповедь &quot;Разоблачение секретов двух женщин&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=9Ud2Bg19Ij4)
-- [20 ноября 2021 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=Sko1pTNfeBE)
 - [Проповедь &quot;1. 2. 3. 4 - ПОБЕДА!&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=jFw6R8Rc2bU)
 - [Проповедь &quot;Почему я опаздываю на служения?!&quot; - Олег Боков | Upstream Church](https://www.youtube.com/watch?v=BLqgc9So_2c)
 - [Проповедь &quot;Время перемен&quot; - Олег Боков | Upstream Church](https://www.youtube.com/watch?v=jlSlvAPFAf4)
+- [Притчи 3:13-26. Библия в видео формате | Живая Библия](https://www.youtube.com/watch?v=i9s-TGTdrVM)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
