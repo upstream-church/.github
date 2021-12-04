@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [4 декабря 2021 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=RrEV7zAUuA4)
 - [Проповедь &quot;Насколько ты любишь Бога?&quot; - Виктор Зубков | Upstream Church](https://www.youtube.com/watch?v=lllUH6Odej8)
 - [Псалом 50. Библия в видео формате | Живая Библия](https://www.youtube.com/watch?v=94H37Bjrumo)
 - [Проповедь &quot;Разоблачение секретов двух женщин&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=9Ud2Bg19Ij4)
 - [Проповедь &quot;1. 2. 3. 4 - ПОБЕДА!&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=jFw6R8Rc2bU)
-- [Проповедь &quot;Почему я опаздываю на служения?!&quot; - Олег Боков | Upstream Church](https://www.youtube.com/watch?v=BLqgc9So_2c)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
