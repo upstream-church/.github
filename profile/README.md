@@ -12,8 +12,8 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [18 декабря 2021 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=Zlgb4TzxAY4)
 - [Проповедь &quot;Церковь мертвецов&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=z719xn54DxA)
-- [11 декабря 2021 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=4_tdw8Mq_hg)
 - [Проповедь &quot;Как получить духовную власть?&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=7rsAUQkTGrg)
 - [Проповедь &quot;Насколько ты любишь Бога?&quot; - Виктор Зубков | Upstream Church](https://www.youtube.com/watch?v=lllUH6Odej8)
 - [Псалом 50. Библия в видео формате | Живая Библия](https://www.youtube.com/watch?v=94H37Bjrumo)
