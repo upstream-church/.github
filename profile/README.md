@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [25 декабря 2021 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=6_N1d77b7OE)
 - [Проповедь &quot;Почему Бог их убил?&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=-grZ9yj6aX4)
 - [Проповедь &quot;Квест-комната Бога&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=MlAl7PBLoUs)
 - [18 декабря 2021 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=Zlgb4TzxAY4)
 - [Проповедь &quot;Церковь мертвецов&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=z719xn54DxA)
-- [Проповедь &quot;Как получить духовную власть?&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=7rsAUQkTGrg)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
