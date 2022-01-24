@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [Проповедь &quot;Обремененный служением&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=TIUeYQrgfeA)
 - [Три вида христианского лицемерия | Олег Боков](https://www.youtube.com/watch?v=h4jcY5CBTFg)
 - [Проповедь &quot;Бытовуха&quot; - Олег Боков | Upstream Church](https://www.youtube.com/watch?v=5VULdn7Taks)
 - [Проповедь &quot;Почему Бог их убил?&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=-grZ9yj6aX4)
 - [Проповедь &quot;Квест-комната Бога&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=MlAl7PBLoUs)
-- [Проповедь &quot;Церковь мертвецов&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=z719xn54DxA)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
