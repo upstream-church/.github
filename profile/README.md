@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [Проповедь &quot;Мокрое покрывало от Бога&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=8YQvSrzOGts)
 - [Проповедь &quot;Уверен ли ты, что любишь Бога?&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=2KqLWJDwAWM)
 - [Проповедь &quot;Вот почему ты не слышишь Бога&quot; - Виталий Пилипенко | Upstream Church](https://www.youtube.com/watch?v=OuqUUYYF46w)
 - [Проповедь &quot;Опыты над Богом&quot; - Олег Боков | Upstream Church](https://www.youtube.com/watch?v=UbmoNFWGdNM)
 - [Проповедь &quot;Обремененный служением&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=TIUeYQrgfeA)
-- [Три вида христианского лицемерия | Олег Боков](https://www.youtube.com/watch?v=h4jcY5CBTFg)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
