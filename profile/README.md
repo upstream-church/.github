@@ -12,8 +12,8 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [8 января 2022 - Проповедь &quot;Дары Духа&quot; - Глеб Лобанов | Upstream Church](https://www.youtube.com/watch?v=-0mNqKXbN-A)
 - [Молитвенная встреча #2 «Соразмерно твоим возможностям» || UPSTREAM church](https://www.youtube.com/watch?v=oX10ylM1ih0)
+- [8 января 2022 - Проповедь &quot;Дары Духа&quot; - Глеб Лобанов | Upstream Church](https://www.youtube.com/watch?v=-0mNqKXbN-A)
 - [Молитвенная встреча #1. «Изгоняя лживые источники спокойствия» || UPSTREAM church](https://www.youtube.com/watch?v=zNq1xIfJlIo)
 - [Проповедь &quot;Вопреки логике&quot; - Александр Ващинин | Upstream Church](https://www.youtube.com/watch?v=alG040m-KkQ)
 - [Проповедь &quot;Мокрое покрывало от Бога&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=8YQvSrzOGts)
