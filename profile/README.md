@@ -12,7 +12,7 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [5 марта 2022 Проповедь: «Зашёл слишком далеко. Что делать?»|| UPSTREAM Church LIVE](https://www.youtube.com/watch?v=SY4T1PiqEhg)
+- [Утренняя проповедь](https://www.youtube.com/watch?v=oYFOZzrijyM)
 - [Молитвенная встреча #4 «Видеть за пределами видимого» || UPSTREAM church](https://www.youtube.com/watch?v=HzDnsqjVQtM)
 - [Страх быть просеянным Проповедь &quot;Страх быть просеянным&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=MsF_GXlJOOU)
 - [Молитвенная встреча #3 «Обретая новый фокус» || UPSTREAM church](https://www.youtube.com/watch?v=CwQZ4LDvFtc)
