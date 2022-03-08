@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [Молитвенная встреча #8 «Кто сильнее?» || UPSTREAM church](https://www.youtube.com/watch?v=uWd62zg0XRE)
 - [Молитвенная встреча #7 «Враг, смотрящий из зеркала» || UPSTREAM church](https://www.youtube.com/watch?v=Nl-qlTNcV0Y)
 - [Молитвенная встреча #6 «Иди не зная, но не в слепую» || UPSTREAM church](https://www.youtube.com/watch?v=08mmE5wI0cM)
 - [Молитвенная встреча #5 «Небесная охрана» || UPSTREAM church](https://www.youtube.com/watch?v=nrSP4emsZew)
 - [5 марта 2022 Проповедь: «Зашел слишком далеко. Что делать?» || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=oYFOZzrijyM)
-- [Молитвенная встреча #4 «Видеть за пределами видимого» || UPSTREAM church](https://www.youtube.com/watch?v=HzDnsqjVQtM)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
