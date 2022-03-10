@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [Молитвенная встреча #10 «Живой Хлеб» || UPSTREAM church](https://www.youtube.com/watch?v=dl-63qAEjas)
 - [Молитвенная встреча #9 «Осуществление невидимого» || UPSTREAM church](https://www.youtube.com/watch?v=7mjR31lVIIw)
 - [Молитвенная встреча #8 «Кто сильнее?» || UPSTREAM church](https://www.youtube.com/watch?v=uWd62zg0XRE)
 - [Молитвенная встреча #7 «Враг, смотрящий из зеркала» || UPSTREAM church](https://www.youtube.com/watch?v=Nl-qlTNcV0Y)
 - [Молитвенная встреча #6 «Иди не зная, но не в слепую» || UPSTREAM church](https://www.youtube.com/watch?v=08mmE5wI0cM)
-- [Молитвенная встреча #5 «Небесная охрана» || UPSTREAM church](https://www.youtube.com/watch?v=nrSP4emsZew)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
