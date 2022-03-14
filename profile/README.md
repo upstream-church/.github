@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [Молитвенная встреча #14 «Охраняем для служения» || UPSTREAM church](https://www.youtube.com/watch?v=qslAVGzl_z8)
 - [Молитвенная встреча #13 «Неизменно благой» || UPSTREAM church](https://www.youtube.com/watch?v=HMXIUaUxbEU)
 - [Молитвенная встреча #12 «Только желания Бога» || UPSTREAM church](https://www.youtube.com/watch?v=5eHM2E5m2D8)
 - [Молитвенная встреча #11 «Интенсивность или наличие» || UPSTREAM church](https://www.youtube.com/watch?v=7gAiWWAdgKg)
 - [Проповедь &quot;Объединение Церкви в конце времен&quot; - Василий Бурсук | Upstream Church](https://www.youtube.com/watch?v=nm_TBnDz3Nc)
-- [Молитвенная встреча #10 «Живой Хлеб» || UPSTREAM church](https://www.youtube.com/watch?v=dl-63qAEjas)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
