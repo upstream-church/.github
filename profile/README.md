@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [Христианин в информационной войне!](https://www.youtube.com/watch?v=Z9tjtJDY-pw)
 - [Христианин в информационной войне!](https://www.youtube.com/watch?v=0cAYBMGJBrA)
 - [30 апреля 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=giKl8zrSUik)
 - [23 апреля 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=Z5fG2GY2R60)
 - [9 апреля 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=A20Z5kkrj9c)
+- [Духовный марафон &quot;UPray&quot; - уже 28 марта! Ссылка на регистрацию в описании 😉](https://www.youtube.com/watch?v=ZChNvzc2Iv4)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
