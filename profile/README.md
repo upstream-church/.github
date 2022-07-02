@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [2 июля 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=nkep9AR0jZE)
 - [28 мая 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=Ynq1neEs5dk)
 - [21 мая 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=hmk2GRHatWo)
 - [30 апреля 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=giKl8zrSUik)
 - [Духовный марафон &quot;UPray&quot; - уже 28 марта! Ссылка на регистрацию в описании 😉](https://www.youtube.com/watch?v=ZChNvzc2Iv4)
-- [19 марта 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=QIEt7seh8bQ)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
