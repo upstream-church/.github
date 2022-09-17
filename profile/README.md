@@ -13,10 +13,10 @@
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
 - [17 вересня 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=Ojc-ayrZ2uE)
-- [03 вересня 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=l4vGUBgV8u4)
-- [27 августа 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=jNgV-4pzYs4)
-- [6 августа 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=eTVf0mAbDY0)
-- [30 июля 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=JL0x9uoo0rg)
+- [23 июля 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=kLknTnlRRd4)
+- [16 июля 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=Wwvf5661HKs)
+- [Духовный марафон &quot;UPray&quot; - уже 28 марта! Ссылка на регистрацию в описании 😉](https://www.youtube.com/watch?v=ZChNvzc2Iv4)
+- [Молитвенная встреча #14 «Охраняем для служения» || UPSTREAM church](https://www.youtube.com/watch?v=qslAVGzl_z8)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
