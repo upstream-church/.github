@@ -14,9 +14,9 @@
 <!-- YOUTUBE:START -->
 - [Проповідь - Навіщо нам ті пророцтва? Олег Боков](https://www.youtube.com/watch?v=Z_Xvkk7HWhM)
 - [Проповідь - Не ускладнюй життя з Богом! Василь Бурсук](https://www.youtube.com/watch?v=mDCvuvFy6d8)
-- [5 листопада 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=zzV-s__gPLI)
 - [15 жовтня 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=C9c-r8crkUs)
 - [8 жовтня 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=45JoT-h3TPc)
+- [1 жовтня 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=h4H28KinfZ4)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
