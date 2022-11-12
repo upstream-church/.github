@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [12 листопада 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=RbfQ13jPsJQ)
 - [Проповідь - Навіщо нам ті пророцтва? Олег Боков](https://www.youtube.com/watch?v=Z_Xvkk7HWhM)
 - [Проповідь - Не ускладнюй життя з Богом! Василь Бурсук](https://www.youtube.com/watch?v=mDCvuvFy6d8)
 - [5 листопада 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=zzV-s__gPLI)
 - [15 жовтня 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=C9c-r8crkUs)
+- [8 жовтня 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=45JoT-h3TPc)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
