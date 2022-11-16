@@ -12,8 +12,8 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [Проповідь - Навіщо нам ті пророцтва? Олег Боков](https://www.youtube.com/watch?v=Z_Xvkk7HWhM)
-- [Проповідь - Не ускладнюй життя з Богом! Василь Бурсук](https://www.youtube.com/watch?v=mDCvuvFy6d8)
+- [#проповідь - Навіщо нам ті пророцтва? Олег Боков &lpar;29.10.2022&rpar;](https://www.youtube.com/watch?v=Z_Xvkk7HWhM)
+- [#проповідь - Не ускладнюй життя з Богом! Василь Бурсук &lpar;22.10.2022&rpar;](https://www.youtube.com/watch?v=mDCvuvFy6d8)
 - [15 жовтня 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=C9c-r8crkUs)
 - [8 жовтня 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=45JoT-h3TPc)
 - [1 жовтня 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=h4H28KinfZ4)
