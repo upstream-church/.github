@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [#проповідь Куди тікати під час війни? 👉 Леонід Рутковський &lpar;24.12.2022&rpar; | Upstream Church](https://www.youtube.com/watch?v=1xIG40bUbyw)
 - [#проповідь Христос - кінець Закону 👉 Василь Бурсук &lpar;17.09.2022&rpar; | Upstream Church](https://www.youtube.com/watch?v=RXa6VKDG0EU)
 - [24  грудня 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=HF_Dha_mT5Y)
 - [17  грудня 2022 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=Z31cUwC5hvs)
 - [#проповідь Секрет закваски 👉 Василь Бурсук &lpar;19.11.2022&rpar; | Upstream Church](https://www.youtube.com/watch?v=w21u12PLYKI)
-- [#проповідь неДОСКОНАЛА церква 👉 Олег Боков &lpar;15.10.2022&rpar; | Upstream Church](https://www.youtube.com/watch?v=uiJlkA2Edbk)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
