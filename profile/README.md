@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [18 лютого 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=y77eV1jTvV0)
-- [11 лютого 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=MeHY1hnBYE8)
 - [#проповідь Яка Ісусу різниця у що я одягнений? 👉 Олег Боков | Upstream Church](https://www.youtube.com/watch?v=PAwJNWW9di0)
 - [#проповідь Церковні баги: відсутність покаяння 👉 Василь Бурсук &lpar;17.12.2022&rpar; | Upstream Church](https://www.youtube.com/watch?v=Zu8qKAkbLdE)
-- [4 лютого 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=3jXe6Fy5mQU)
+- [#проповідь 3 кроки до Сили згори 👉 Олег Боков &lpar;21.01.2022&rpar; | Upstream Church](https://www.youtube.com/watch?v=vd-mXhGw0ek)
+- [#проповідь Фальшиві духовні відкриття 👉 Василь Бурсук &lpar;26.11.2022&rpar; | Upstream Church](https://www.youtube.com/watch?v=FLmnFyhFhd0)
+- [#проповідь Нагодуй своє місто 👉 Олег Боков &lpar;03.12.2022&rpar; | Upstream Church](https://www.youtube.com/watch?v=aeoBYG60Soc)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
