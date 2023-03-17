@@ -15,8 +15,8 @@
 - [11 березня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=hQKd8pgDzik)
 - [25 лютого 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=Ub5tYcAWuhw)
 - [#проповідь Яка Ісусу різниця у що я одягнений? 👉 Олег Боков | Upstream Church](https://www.youtube.com/watch?v=PAwJNWW9di0)
-- [#проповідь Церковні баги: відсутність покаяння 👉 Василь Бурсук &lpar;17.12.2022&rpar; | Upstream Church](https://www.youtube.com/watch?v=Zu8qKAkbLdE)
-- [#проповідь 3 кроки до Сили згори 👉 Олег Боков &lpar;21.01.2022&rpar; | Upstream Church](https://www.youtube.com/watch?v=vd-mXhGw0ek)
+- [#проповідь Церковні баги: відсутність покаяння 👉 Василь Бурсук | Upstream Church](https://www.youtube.com/watch?v=Zu8qKAkbLdE)
+- [#проповідь 3 кроки до Сили згори 👉 Олег Боков | Upstream Church](https://www.youtube.com/watch?v=vd-mXhGw0ek)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
