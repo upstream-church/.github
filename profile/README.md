@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [#проповідь Церква, що похоронила прославлення 👉 Василь Бурсук | Upstream Church](https://www.youtube.com/watch?v=tfD6OpIccdo)
+- [6 травня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=cNd1wP2pUs0)
 - [#проповідь Забагато 👉 Ростислав Пузанков | Upstream Church](https://www.youtube.com/watch?v=0Jr_qTzH0sU)
 - [29 квітня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=nf09rX1MO88)
 - [22 квітня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=YidRUkChbJc)
-- [15 квітня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=rkvhe0VTUTo)
-- [Школа молитви Upray](https://www.youtube.com/watch?v=pupdlvI4EAM)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
