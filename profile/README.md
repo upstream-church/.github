@@ -13,10 +13,10 @@
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
 - [#проповідь ТУТ 👉 Едуард Єременко | Upstream Church](https://www.youtube.com/watch?v=42kBjLLzJCM)
-- [13 травня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=0YWZbXd1xSc)
 - [6 травня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=cNd1wP2pUs0)
 - [#проповідь Церква, що похоронила прославлення 👉 Василь Бурсук | Upstream Church](https://www.youtube.com/watch?v=tfD6OpIccdo)
 - [#проповідь Забагато 👉 Ростислав Пузанков | Upstream Church](https://www.youtube.com/watch?v=0Jr_qTzH0sU)
+- [29 квітня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=nf09rX1MO88)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
