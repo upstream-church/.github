@@ -13,10 +13,10 @@
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
 - [НЕБЕЗПЕКА ВІРИ В СЕРЦІ 👉 проповідь Олега Бокова | Upstream Church](https://www.youtube.com/watch?v=k9Wi1IlZ4vM)
-- [20 травня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=vIbrvnRwHfQ)
 - [13 травня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=0YWZbXd1xSc)
 - [#проповідь ТУТ 👉 Едуард Єременко | Upstream Church](https://www.youtube.com/watch?v=42kBjLLzJCM)
 - [6 травня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=cNd1wP2pUs0)
+- [#проповідь Церква, що похоронила прославлення 👉 Василь Бурсук | Upstream Church](https://www.youtube.com/watch?v=tfD6OpIccdo)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
