@@ -13,10 +13,10 @@
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
 - [Овечка чи Пастир? 👉 проповідь Івана Майера | Upstream Church](https://www.youtube.com/watch?v=64CyK_o1lik)
-- [17 червня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=lqppUOn5Das)
 - [10 червня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=IOEWUwiaOps)
 - [Чи варто служити, коли ти спустошений? 👉 проповідь Василя Бурсука | Upstream Church](https://www.youtube.com/watch?v=egmsCWPWw2U)
 - [Спікер конгресу ТУТ Максим Крупський | ПРЯМИЙ ЕФІР | 03.05.2023](https://www.youtube.com/watch?v=WY2vxxZm4zA)
+- [Спікер конгресу ТУТ Михайло Воробканич | ПРЯМИЙ ЕФІР | 03.05.2023](https://www.youtube.com/watch?v=rrjQOsdBr4A)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
