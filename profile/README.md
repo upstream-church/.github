@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [КОЛИ БОГ ПОСТУКАВ ПО ПЛЕЧУ 👉 проповідь Леоніда Рутковського | Upstream Church](https://www.youtube.com/watch?v=ora8H7NfGWc)
 - [24 червня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=kQ2fDRGjI5E)
 - [17 червня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=lqppUOn5Das)
 - [Овечка чи Пастир? 👉 проповідь Івана Майера | Upstream Church](https://www.youtube.com/watch?v=64CyK_o1lik)
 - [10 червня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=IOEWUwiaOps)
-- [Чи варто служити, коли ти спустошений? 👉 проповідь Василя Бурсука | Upstream Church](https://www.youtube.com/watch?v=egmsCWPWw2U)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
