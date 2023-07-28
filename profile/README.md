@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [22 липня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=XLY9aqfqW2s)
-- [15 липня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=XyZ64IY68vU)
+- [29 липня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=KZOp5Z6VOOg)
 - [Розчарування у церкві 👉 проповідь Василя Бурсука | Upstream Church](https://www.youtube.com/watch?v=uln4ZevYEI0)
-- [8 липня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=NK3QGC8eoCM)
 - [Скільки важить твоє слово? 👉 проповідь Олега Бокова | Upstream Church](https://www.youtube.com/watch?v=Jd8rFILeh4A)
+- [КОЛИ БОГ ПОСТУКАВ ПО ПЛЕЧУ 👉 проповідь Леоніда Рутковського | Upstream Church](https://www.youtube.com/watch?v=ora8H7NfGWc)
+- [Овечка чи Пастир? 👉 проповідь Івана Майера | Upstream Church](https://www.youtube.com/watch?v=64CyK_o1lik)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
