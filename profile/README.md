@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [07 жовтня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=dPHnk2NsPBE)
 - [30 вересня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=BAvVqPFUofA)
 - [16 вересня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=aBRNXWW4YTk)
 - [9 вересня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=-vb8XeRPUkQ)
 - [2 вересня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=t0jcXv_QQY8)
-- [26 серпня 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=fTkMyhXZpm8)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
