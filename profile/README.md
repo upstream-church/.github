@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [9 березня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=PB5tce1YRPY)
 - [2 березня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=jBJrudSxWMI)
 - [24 лютого 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=aKyrIfzqv0g)
 - [17 лютого 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=bvJvmJasF60)
 - [10 лютого 2023 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=GH7lrYEMUIA)
+- [ЕФЕКТИВНИЙ ЗАХИСТ 👉 проповідь Романа Проданюка | Upstream Church](https://www.youtube.com/watch?v=yQI0UHJTX1I)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
