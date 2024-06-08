@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [8 червня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=4uaNUgTgphc)
 - [Як Джон Максвелл перетворив моє життя | Моя мотивація та становлення](https://www.youtube.com/watch?v=j8uT_y_4T4I)
 - [25 травня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=rdiapW203H8)
 - [18 травня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=UQXHRs5xaAg)
 - [11 травня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=b6MubN16Ia0)
-- [4 травня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=hUVf88krTZg)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
