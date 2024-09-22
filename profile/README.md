@@ -12,7 +12,7 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [Народжені для перемоги - 21 вересня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=j8KSU6fZ9AU)
+- [21 вересня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=j8KSU6fZ9AU)
 - [14 вересня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=vq5kRPBoZpo)
 - [7 вересня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=iYvEJh0lWBE)
 - [31 серпня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=9Y6a-yEfzbY)
