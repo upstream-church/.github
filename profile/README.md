@@ -13,10 +13,10 @@
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
 - [Мудрі як змії - 5 жовтня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=yrA-1bJR2t8)
-- [Мудрі як змії - 5 жовтня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=cbfZyFDl548)
 - [Він не втомився шукати - 28 вересня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=ycIRjk6h8kI)
 - [Народжені для перемоги - 21 вересня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=j8KSU6fZ9AU)
 - [14 вересня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=vq5kRPBoZpo)
+- [7 вересня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=iYvEJh0lWBE)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
