@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [Я пастор, і мені не хочеться ходити в церкву - 19 жовтня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=ZrNxIuAhlgg)
 - [Я пастор, і мені не хочеться ходити в церкву - 19 жовтня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=LA6oavLAjKQ)
 - [Мудрі як змії - 5 жовтня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=yrA-1bJR2t8)
 - [Він не втомився шукати - 28 вересня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=ycIRjk6h8kI)
 - [Народжені для перемоги - 21 вересня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=j8KSU6fZ9AU)
-- [14 вересня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=vq5kRPBoZpo)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
