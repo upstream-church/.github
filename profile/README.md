@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [Збирай благословіння, а не прокляття - 16 листопада 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=1FHr8NiGAsw)
 - [Християни закритих кімнат - 9 листопада 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=yWV7CwtigLQ)
 - [Допоможіть, втрачаю Ісуса двічі на рік - 2 листопада 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=KNC7AfBkuHM)
 - [Чи можливо бути незалежним від Бога? - 26 жовтня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=DHLhLZZGpac)
 - [Я пастор, і мені не хочеться ходити в церкву - 19 жовтня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=ZrNxIuAhlgg)
-- [Мудрі як змії - 5 жовтня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=yrA-1bJR2t8)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
