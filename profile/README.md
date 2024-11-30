@@ -12,7 +12,7 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [Ідентичність через призму прославлення - 23 листопада 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=FPW0HxsMFLk)
+- [Ідентичність через призму прославлення - 30 листопада 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=FPW0HxsMFLk)
 - [2025: рік, який змінить усе - 23 листопада 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=RQbZQEeV5nU)
 - [Збирай благословіння, а не прокляття - 16 листопада 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=1FHr8NiGAsw)
 - [Християни закритих кімнат - 9 листопада 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=yWV7CwtigLQ)
