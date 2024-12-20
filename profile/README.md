@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [План Б на 2025 - 21 грудня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=zXY7_SVN7ZE)
 - [Не люблю і не бажаю їхнього спасіння - 14 грудня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=eTjklHcHyqM)
 - [В очікуванні персональної відповіді від Бога - 7 грудня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=yz-l63KCMoc)
 - [Ідентичність через призму прославлення - 30 листопада 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=FPW0HxsMFLk)
 - [2025: рік, який змінить усе - 23 листопада 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=RQbZQEeV5nU)
-- [Збирай благословіння, а не прокляття - 16 листопада 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=1FHr8NiGAsw)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
