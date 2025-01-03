@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [Вселенський ігнор - 4 січня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=k-SVB6EDrL0)
 - [Побачити більше - 28 грудня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=bP7wncsEwvk)
 - [План Б на 2025 - 21 грудня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=zXY7_SVN7ZE)
 - [Не люблю і не бажаю їхнього спасіння - 14 грудня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=eTjklHcHyqM)
 - [В очікуванні персональної відповіді від Бога - 7 грудня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=yz-l63KCMoc)
-- [Ідентичність через призму прославлення - 30 листопада 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=FPW0HxsMFLk)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
