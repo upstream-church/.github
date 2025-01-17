@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [Церква, яка вчиться дихати заново - 11 січня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=BgvHLGfxP7g)
-- [Вселенський ігнор - 4 січня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=k-SVB6EDrL0)
+- [Кінець церковного театру - 18 січня 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=55p85bb-gm0)
+- [Церква, яка вчиться дихати заново - 11 січня 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=BgvHLGfxP7g)
+- [Вселенський ігнор - 4 січня 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=k-SVB6EDrL0)
 - [Побачити більше - 28 грудня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=bP7wncsEwvk)
 - [План Б на 2025 - 21 грудня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=zXY7_SVN7ZE)
-- [Не люблю і не бажаю їхнього спасіння - 14 грудня 2024 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=eTjklHcHyqM)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
