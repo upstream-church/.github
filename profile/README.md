@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
+- [Памʼятайте Лотову жінку - 15 лютого 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=_cx0cvUIGKA)
 - [Коли Бог торкається супу - 8 лютого 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=Ex-mZNnaOOU)
 - [Кому Бог дає силу - 1 лютого 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=fpzauGL2XAc)
 - [Блокер твого покликання - 25 січня 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=bj0Msg2-ua4)
 - [Кінець церковного театру - 18 січня 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=55p85bb-gm0)
-- [Церква, яка вчиться дихати заново - 11 січня 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=BgvHLGfxP7g)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
