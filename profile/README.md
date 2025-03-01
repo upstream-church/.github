@@ -12,11 +12,11 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [Християнину можна все - 1 березня 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=Uk4UgylrbUg)
 - [Війна у твоєму тілі - 22 лютого 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=QGBsqVMj2x8)
 - [Памʼятайте Лотову жінку - 15 лютого 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=_cx0cvUIGKA)
 - [Коли Бог торкається супу - 8 лютого 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=Ex-mZNnaOOU)
 - [Кому Бог дає силу - 1 лютого 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=fpzauGL2XAc)
+- [Блокер твого покликання - 25 січня 2025 || UPSTREAM Church LIVE](https://www.youtube.com/watch?v=bj0Msg2-ua4)
 <!-- YOUTUBE:END -->
 
 ➡️ [more videos...](https://youtube.com/UpstreamChurch)
