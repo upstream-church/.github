@@ -12,7 +12,6 @@
 
 ### 📺 Наши последнии YouTube видео
 <!-- YOUTUBE:START -->
-- [Ми переїжджаємо! Підписуйтесь на наш новий YouTube-канал Upstream Church!](https://www.youtube.com/watch?v=PGL5ITrROI8)
 - [Ми переїжджаємо! Підписуйтесь на наш новий YouTube-канал Upstream Church! &lpar;Посилання в описі&rpar;](https://www.youtube.com/watch?v=xpBY6gfALbc)
 <!-- YOUTUBE:END -->
 
